@@ -1,3 +1,3 @@
 # latihan-branch
 coba saja
-kjafiusf
+coba kata baru
