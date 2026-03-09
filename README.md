@@ -1,3 +1,3 @@
 # latihan-branch
 coba saja
-uuuyruowh
+coba kata baru
